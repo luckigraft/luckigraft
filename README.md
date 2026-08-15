@@ -1,16 +1,18 @@
-![](https://cdn.discordapp.com/attachments/1336906483136331892/1536590486435930192/Untitled1_20260810230106.webp?ex=6a7bf4e8&is=6a7aa368&hm=fe4f2ce7fe1103ee27426b9c87944c12d2ecc0d0123a703ba5524532aee09e72)
+![](https://cdn.discordapp.com/attachments/1336906483136331892/1538289242453844098/Scythestaff_Yuri_GIF_-_Scythestaff_Yuri_Vinescythe_-_Discover__Share_GIFs.gif?ex=6a8222ff&is=6a80d17f&hm=b6feb1e805d499e9120a2a400f9b6507127b7c6abd156815ebfa578ceb059b5c)
 
-  *'' ur  my  coney  island  bby  < 3 ''*
+ 
   
   
-  syd / dusekkarp
+  syd / dusekkarp 
 
   minor  ,  iwvec  , paranoid n anxious literally all the time
-  
 
+  
   # dni
 
   basic dni
+
+  fakeclaimers / r/systemfaker / r/disordercringe
   
   radqueers
 
@@ -20,10 +22,14 @@
   
   T.R.A.S.H
 
-  basically js weirdos...
+  VERY VERY specifically dni if you ship ivan x andrew from bad things or if you ship radiostatic and/or radiobelle? and staticbelle
+
+  basically js weirdos meow meow
+
+  i will block you if i wanna you can kiss my fluffy puppy butt if u dont like that >:3
   
 
-  (placeholder)
+ 
   
 
 # info!
