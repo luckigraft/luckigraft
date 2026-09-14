@@ -5,7 +5,7 @@
 
 ㅤㅤㅤ dni  ;
 
-willogenics
+willogenics (im not antiendo i js dont want willogenics to int...)
 
 tsftl + sfawtde haters
 
