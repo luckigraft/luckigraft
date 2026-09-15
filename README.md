@@ -24,3 +24,5 @@ c+h isn't encouraged, but I don't mind! I likely just won't talk to you because 
 sign my ata? :3 
 
 whispering me is fine! 
+
+I HAVE A LOT OF TRIGGERS!!!!!!!  if i go silent DONT PRY :.) tyy....
