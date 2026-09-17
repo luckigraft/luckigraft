@@ -5,7 +5,7 @@
 
 ㅤㅤㅤ dni  ;
 
-willogenics (im not antiendo i js dont want willogenics to int...)
+willogenic ' systems '
 
 tsftl + sfawtde haters
 
@@ -26,3 +26,5 @@ sign my ata? :3
 whispering me is fine! 
 
 I HAVE A LOT OF TRIGGERS!!!!!!!  if i go silent DONT PRY :.) tyy....
+
+ask me questions on my ata!! ^_^
